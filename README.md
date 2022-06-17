@@ -1,6 +1,6 @@
 # Nathan Knight
 
-#### Senior Systems Engineer -- Brim Laundry Machinery
+#### Automation Controls Engineer -- Amcor Rigid Plastics
 
 ---
 
